@@ -2,9 +2,8 @@
 ## Retour sur la sortie
 
 ### Oeuvre préférée
-Nommez l'oeuvre que vous avez préférée lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
+Mon oeuvre préféré était celle avec les méduses car premièrement j'aimais beaucoup les couleurs mauves et bleu,c'est mes couleurs préférés.Et deuxièmement parce que j'aimais aussi le fait qu'elles bougeait et changeait de couleur quand on s'en approchait. 
 
 
 ### Oeuvre la moins appréciée
-Nommez l'oeuvre que vous avez le moins aimé lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
-
+L'oeuvre que j'ai le moins apprécier est celle avec les arbres.C'est celle que je préfère le moins car je n'ai pas vraiment compris le concept qu'il y avait en arrière de l'oeuvre.
