@@ -2,7 +2,7 @@
 ## Retour sur la visite de SidLee et PixMob
 
 ### Intérêt
-Laquelle des conférences as-tu préféré et pourquoi? (2 à 3 lignes) 
+J'ai préféré la première,celle de SidLee car nous étions vraiment dans leurs espaces de travail et ça nous donnais une meilleurs idée de ç a serait comment de travailler pour eux.
 
 ### Travail
-Te verrais-tu travailler dans une des deux entreprises? Si oui, laquelle et pour quelle raison? Si non, pourquoi? (2 à 3 lignes)
+Ce sont des entreprises très intéréssantes, mais je ne me verrais pas travailler pour eux car j'ai vraiment envie de travailler seulement dans les jeux vidéos.
